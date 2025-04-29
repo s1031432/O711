@@ -4,6 +4,7 @@
 | 17:30 | [蘭城晶英紅樓中餐廳](https://maps.app.goo.gl/9dSjgx8xNYkmzxfa9) | 烤鴨五吃 |
 | 19:00 | [包棟民宿](https://maps.app.goo.gl/3NQ7ap26UChu9GwL7) | 宜蘭縣冬山鄉武罕五路150號 |
 | 22:00 | [羅東夜市](https://maps.app.goo.gl/Ea5g6dbJLwTizz5V6) | Optional |
+| 08:00 | [包棟民宿](https://maps.app.goo.gl/3NQ7ap26UChu9GwL7) | 起床吃早餐 |
 | 09:00 | [長埤湖精靈村](https://maps.app.goo.gl/guxEvZvrf15sStvu8) | 逛完去旁邊鹽太郎的家可以玩羊鹿驢、拍照 |
 | 12:00 | [一心拉麵](https://maps.app.goo.gl/iT48ePDVGHLGX3wZ9) | 拉麵、烏龍麵 |
 | 13:20 | [冬山河親水公園](https://maps.app.goo.gl/Te7UWdZKMRD2Xtj88) or [梅花湖](https://maps.app.goo.gl/VR11vGb1aNd9eDDB7) | 騎腳踏車、踩天鵝船、散步、拍照 |
