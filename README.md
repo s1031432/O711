@@ -1,6 +1,6 @@
 | 時間  | 地點 | 備註 |
 | :--- | :--- | :--- |
-| 16:00 | [政治大學](https://maps.app.goo.gl/onzbGEoJSUbJA7Ts6) | 出發 |
+| 16:00 | [政治大學](https://maps.app.goo.gl/onzbGEoJSUbJA7Ts6) | 出發地暫定為政大，視情況接送或多點上車 |
 | 17:30 | [聯發冰工坊](https://maps.app.goo.gl/DnfLL7e5HE2bw83H8) | 下國道北轉吃冰 |
 | 18:10 | [拾松辦桌小吃](https://maps.app.goo.gl/9vqGSSYjvHB4kVEz7)、[停車場](https://maps.app.goo.gl/zEQ4Wyuf29pm2reP7) | 晚餐（第四組提出） |
 | 19:00 | [包棟民宿](https://maps.app.goo.gl/3NQ7ap26UChu9GwL7) | 宜蘭縣冬山鄉武罕五路150號 |
