@@ -14,3 +14,12 @@
 | 18:00 | [阿芬鮮魚湯](https://maps.app.goo.gl/BjYWNz7ghqdy761B6) | 平價海鮮餐廳 |
 | 20:00 | [奕順軒](https://maps.app.goo.gl/dz5xrCEC5PCyZkHJA) | [諸貝爾](https://maps.app.goo.gl/X6fvpceW2p1dty4W6) 派的自己走去旁邊買 |
 | 22:30 | [北橫巴陵大橋](https://maps.app.goo.gl/Yg1dua6oDPMPbd7NA)看星星 | 下山是大溪接國道三號回台北，拍照（第五組提出） |
+
+
+## 雨備景點
+
+ | 地點 | 備註 |
+ | :--- | :--- |
+ | [積木博物館](https://maps.app.goo.gl/SP7JZfGmXZqMQTFw9) | 門票$250 |
+ | [奇麗灣珍奶文化館](https://maps.app.goo.gl/tyLWdbwzNc3dNiBQ8) | 門票免費，DIY珍奶 |
+ | [甲鳥園](https://maps.app.goo.gl/edtmuyz4qyGtbtfG9) | 門票$100可抵消費，可摸鳥 |
