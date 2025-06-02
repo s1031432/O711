@@ -6,7 +6,7 @@
 | 19:00 | [包棟民宿](https://maps.app.goo.gl/3NQ7ap26UChu9GwL7) | 宜蘭縣冬山鄉武罕五路150號 |
 | 20:00 | [羅東夜市](https://maps.app.goo.gl/Ea5g6dbJLwTizz5V6) | （第一組提出） |
 | 08:00 | [包棟民宿](https://maps.app.goo.gl/3NQ7ap26UChu9GwL7) | 起床、吃民宿早餐 |
-| 09:00 | [清水地熱](https://maps.app.goo.gl/d6cMpW1s11JmWqqR9) | 泉湯屋、浴衣、煮食、魚咬腳（第一、三提出）|
+| 09:00 | [清水地熱](https://maps.app.goo.gl/d6cMpW1s11JmWqqR9) | 泉湯屋、浴衣、煮食、魚咬腳（第一、三組提出）|
 | 11:40 | [百匯窯烤雞餐廳](https://maps.app.goo.gl/jCoVLtJefQS2qm1q8) | 雞料理（中菜） |
 | 13:30 | [冬山河親水公園](https://maps.app.goo.gl/Te7UWdZKMRD2Xtj88) | 騎腳踏車、踩天鵝船、散步、拍照（第三、五組提出） |
 | 15:40 | [粉鳥林](https://maps.app.goo.gl/WEEewVuEWkKtzpdXA) | 聽海哭的聲音、拍照（第一組提出） |
