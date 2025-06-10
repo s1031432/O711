@@ -2,7 +2,7 @@
 | :--- | :--- | :--- |
 | 16:00 | [政治大學](https://maps.app.goo.gl/onzbGEoJSUbJA7Ts6) | 出發地暫定為政大，視情況接送或多點上車 |
 | 17:30 | [聯發冰工坊](https://maps.app.goo.gl/DnfLL7e5HE2bw83H8) | 下國道北轉吃冰（第五組提出） |
-| 18:10 | [拾松辦桌小吃](https://maps.app.goo.gl/9vqGSSYjvHB4kVEz7)、[停車場](https://maps.app.goo.gl/zEQ4Wyuf29pm2reP7) | 晚餐（第四組提出） |
+| 18:10 | [拾松辦桌小吃](https://maps.app.goo.gl/zEQ4Wyuf29pm2reP7) | 晚餐（第四組提出） |
 | 19:00 | [包棟民宿](https://maps.app.goo.gl/3NQ7ap26UChu9GwL7) | 宜蘭縣冬山鄉武罕五路150號 |
 | 20:00 | [羅東夜市](https://maps.app.goo.gl/Ea5g6dbJLwTizz5V6) | （第一組提出） |
 | 08:00 | [包棟民宿](https://maps.app.goo.gl/3NQ7ap26UChu9GwL7) | 起床、吃民宿早餐 |
@@ -12,8 +12,8 @@
 | 15:40 | [粉鳥林](https://maps.app.goo.gl/WEEewVuEWkKtzpdXA) | 聽海哭的聲音、拍照（第一組提出） |
 | 17:20 | [南方澳觀景台](https://maps.app.goo.gl/ECJatfVSbvRdUfnU7) | 看海、拍照 |
 | 18:00 | [阿芬鮮魚湯](https://maps.app.goo.gl/BjYWNz7ghqdy761B6) | 平價海鮮餐廳 |
-| 20:00 | [奕順軒](https://maps.app.goo.gl/dz5xrCEC5PCyZkHJA) | [諸貝爾](https://maps.app.goo.gl/X6fvpceW2p1dty4W6) 派的自己走去旁邊買 |
-| 22:30 | [北橫巴陵大橋](https://maps.app.goo.gl/Yg1dua6oDPMPbd7NA)看星星 | 下山是大溪接國道三號回台北，拍照（第五組提出） |
+| 20:00 | [奕順軒](https://maps.app.goo.gl/dz5xrCEC5PCyZkHJA) | 諸貝爾派的自己走去旁邊買 |
+| 22:30 | [北橫巴陵大橋](https://maps.app.goo.gl/Yg1dua6oDPMPbd7NA) | 看星星銀河合照（第五組提出），下山是大溪接國道三號回台北 |
 
 
 ## 雨備景點
